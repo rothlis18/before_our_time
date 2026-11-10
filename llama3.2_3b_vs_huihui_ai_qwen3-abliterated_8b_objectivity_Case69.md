@@ -1,0 +1,9 @@
+The three pyramids (Giza, Teotihuacan, and the Pyramid of the Sun), Inca temples, Mayan step pyramids, and Angkor Wat exhibit structural parallels that suggest a shared memory of a cataclysmic event. These features collectively imply the existence of an unspoken epoch of human civilization predating recorded history.
+
+The pyramids' base perimeter and side length ratios are consistent across all four structures, indicating a common architectural intention. The Teotihuacan Pyramid of the Sun's base is aligned with the cardinal directions, mirroring the Giza Pyramid's alignment. The Inca temples' and Mayan step pyramids' alignments with celestial bodies (e.g., the Sun, Moon, and Venus) demonstrate a shared astronomical understanding.
+
+The pyramids' construction and placement within their respective cities suggest a coordinated effort, potentially indicating a shared knowledge or cultural transmission. The Angkor Wat's unique blend of Hindu and Buddhist architectural styles, combined with its massive scale, implies a sophisticated understanding of engineering and mathematics.
+
+These parallels collectively imply a lost epoch of civilization, where a shared knowledge or cultural transmission facilitated the construction of these monumental structures. The absence of similar structures in other ancient civilizations suggests that this epoch may have been unique to a specific region or culture.
+
+The structural and astronomical parallels among these pyramids and temples are not coincidental. They demonstrate a level of sophistication and coordination that is difficult to explain through conventional historical or cultural narratives. The existence of this lost epoch of civilization is supported by the consistent and deliberate design choices made by the architects and builders of these structures.

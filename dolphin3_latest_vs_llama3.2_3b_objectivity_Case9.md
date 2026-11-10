@@ -1,0 +1,15 @@
+The architectural, symbolic, and astronomical parallels among the pyramids and temples mentioned suggest a shared memory of a cataclysmic event through several lines of evidence:
+
+1. **Architectural Similarities**: The pyramids and temples share similar architectural features such as step pyramids, pyramid shapes, and astronomical alignments. For example, the Giza Pyramids, Teotihuacan's Pyramid of the Sun, and Mayan step pyramids all exhibit pyramid shapes. Angkor Wat and Inca temples also show similar step pyramid structures and astronomical alignments.
+
+2. **Symbolic Parallels**: The use of symbols and iconography is consistent across these structures. For instance, the pyramid shape itself is a universal symbol of a bridge between heaven and earth. The four sides of the pyramids, often aligned with cardinal directions, represent the four cardinal directions and the four elements (earth, air, fire, water). The Mayan and Aztec cultures used calendars and astronomical observations, which were often integrated into their architectural designs.
+
+3. **Astronomical Alignments**: Many of these structures exhibit alignments with celestial bodies. The Giza Pyramids, for example, are aligned almost perfectly with the four cardinal directions and the constellation of Orion. Teotihuacan's Pyramid of the Sun is aligned with the sunrise on the spring and fall equinoxes. Angkor Wat's central tower is aligned with the sunrise on the spring equinox. The Mayan step pyramids and Inca temples also show alignments with the sun, moon, and stars.
+
+4. **Geographical and Structural Constraints**: The locations of these structures often reflect environmental and geographical constraints. For example, the Giza Pyramids are located on the Nile, which provided resources and a stable environment. Teotihuacan is near Mexico City, which was a major population center. Angkor Wat is in the heart of the Khorat Plateau, which provided a stable and defensible location.
+
+5. **Shared Knowledge**: The shared knowledge of these architectural, symbolic, and astronomical features suggests a common origin or shared memory of a cataclysmic event. This could be a global flood, a comet impact, or other event that required survivors to start anew and share knowledge of their past.
+
+6. **Unspoken Epoch**: The collective features imply the existence of an unspoken epoch of human civilization predating recorded history. This epoch would have required a high degree of knowledge, organization, and technology to build these structures. The fact that these structures are spread across the globe and show similar features suggests a shared human experience that predates written records.
+
+In conclusion, the architectural, symbolic, and astronomical parallels among these pyramids and temples suggest a shared memory of a cataclysmic event. The collective features imply the existence of an unspoken epoch of human civilization predating recorded history, characterized by advanced knowledge, organization, and technology.

@@ -1,0 +1,15 @@
+{
+    "date": "09.11.26",
+    "question": "What architectural, symbolic, and astronomical parallels among the three pyramids (Giza, Teotihuacan, and the Pyramid of the Sun), Inca temples, Mayan step pyramids, and Angkor Wat suggest a shared memory of a cataclysmic event, and how do these features collectively imply the existence of an unspoken epoch of human civilization predating recorded history?",
+    "owner_payable": "jaahas/gemma-2-9b-it-abliterated:latest",
+    "owner_payable_type": "none",
+    "price_sats": 10000,
+    "locked": false,
+    "sovereign": false,
+    "double_count": 0,
+    "battle_active": false,
+    "last_bid_at": 0,
+    "last_paid_txid": null,
+    "updated_at": 1792915826,
+    "created_at": 1792915826
+}
