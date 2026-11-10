@@ -1,0 +1,3 @@
+**Forensic Analysis:**
+
+All three pyramids (Giza, Teotihuacan, Pyramid of the Sun), Inca temples, Mayan step pyramids, and Angkor Wat share architectural features such as stepped or smooth-sided structures, precise alignment with cardinal directions, and complex internal structures. Symbolically, they often incorporate astronomical alignments, particularly with solstices and equinoxes, suggesting a shared understanding of celestial movements. Astronomy is further emphasized by the Pyramid of the Sun's alignment with the Pleiades, Giza's alignment with Orion, and Angkor Wat's alignment with the equinox sunrise. These features imply a common epoch predating recorded history, marked by advanced architectural, astronomical, and symbolic knowledge.

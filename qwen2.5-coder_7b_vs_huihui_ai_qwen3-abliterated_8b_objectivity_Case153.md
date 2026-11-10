@@ -1,0 +1,15 @@
+The architectural, symbolic, and astronomical parallels among the three pyramids (Giza, Teotihuacan, and the Pyramid of the Sun), Inca temples, Mayan step pyramids, and Angkor Wat suggest a shared memory of a cataclysmic event due to the precise alignment of these structures with celestial bodies and the use of advanced mathematical and engineering principles.
+
+1. **Giza Pyramids**: The Great Pyramid of Giza is aligned with the stars, with the Sphinx's body aligned with the rising sun on the summer solstice. The pyramids themselves are built with a high degree of precision, with the base of the Great Pyramid level to within a few inches over a square kilometer.
+
+2. **Teotihuacan**: The Pyramid of the Sun in Teotihuacan is aligned with the rising sun on the summer solstice and the setting sun on the winter solstice. The city itself is laid out in a grid pattern, with the Avenue of the Dead running north-south and the Avenue of the Moon running east-west.
+
+3. **Pyramid of the Sun**: The Pyramid of the Sun in Teotihuacan is also aligned with the rising sun on the summer solstice and the setting sun on the winter solstice. The pyramid itself is built with a high degree of precision, with the base of the pyramid level to within a few inches over a square kilometer.
+
+4. **Inca Temples**: The Inca temples are built with a high degree of precision, with the stones fit together so tightly that a knife blade cannot be inserted between them. The temples are also aligned with celestial bodies, with the Temple of the Sun in Cusco aligned with the rising sun on the summer solstice.
+
+5. **Mayan Step Pyramids**: The Mayan step pyramids are built with a high degree of precision, with the steps fit together so tightly that a knife blade cannot be inserted between them. The pyramids are also aligned with celestial bodies, with the Pyramid of the Sun in Chichen Itza aligned with the rising sun on the summer solstice.
+
+6. **Angkor Wat**: Angkor Wat is aligned with the rising sun on the summer solstice and the setting sun on the winter solstice. The temple itself is built with a high degree of precision, with the base of the temple level to within a few inches over a square kilometer.
+
+These features collectively imply the existence of an unspoken epoch of human civilization predating recorded history. The precision of these structures and their alignment with celestial bodies suggest that they were built by a civilization with a deep understanding of mathematics, engineering, and astronomy. The fact that these structures are found in different parts of the world, from Egypt to Mexico to Cambodia, suggests that they were built by a civilization that had a global presence. The shared memory of a cataclysmic event that destroyed this civilization is evident in the way that the structures are aligned with celestial bodies and the use of advanced mathematical and engineering principles.

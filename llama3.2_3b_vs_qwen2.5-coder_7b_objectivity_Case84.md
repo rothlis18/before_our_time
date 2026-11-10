@@ -1,0 +1,13 @@
+The three pyramids (Giza, Teotihuacan, and the Pyramid of the Sun), Inca temples, Mayan step pyramids, and Angkor Wat share architectural, symbolic, and astronomical parallels that imply a shared memory of a cataclysmic event. These parallels can be analyzed through the lens of structural mechanics, power, debt, and material scarcity.
+
+The pyramids' precise geometric alignments with celestial bodies, such as the Giza Pyramid's alignment with the constellation Orion, demonstrate a sophisticated understanding of astronomy and mathematics. This suggests a high degree of organization, planning, and knowledge of celestial mechanics, which is unlikely to be coincidental.
+
+The use of similar architectural styles, materials, and construction techniques across these ancient structures implies a shared cultural or technological heritage. The Inca temples' use of stone masonry, for example, is similar to the Mayan step pyramids' use of limestone and sandstone. This suggests a common understanding of materials science and engineering.
+
+The astronomical alignments of these structures also imply a shared understanding of the cosmos and the cyclical nature of time. The Mayan step pyramids' alignment with the Pleiades star cluster, for example, suggests a knowledge of the Mesoamerican astronomical calendar.
+
+Furthermore, the scale and complexity of these structures suggest a high degree of economic and social organization. The construction of these pyramids required massive resources, labor, and planning, which is unlikely to be achieved by a single, isolated civilization.
+
+The shared memory of a cataclysmic event that these structures imply is supported by the presence of similar mythological and symbolic motifs across these cultures. The use of similar mythological creatures, such as the feathered serpent, and the presence of similar symbolic motifs, such as the use of the number 13, suggest a shared cultural heritage.
+
+In conclusion, the architectural, symbolic, and astronomical parallels among these ancient structures demonstrate a shared memory of a cataclysmic event and imply the existence of an unspoken epoch of human civilization predating recorded history. This shared memory is supported by the presence of similar structural mechanics, power, debt, and material scarcity, which suggest a high degree of organization, planning, and knowledge of celestial mechanics, astronomy, and materials science.
